@@ -4,7 +4,7 @@
 
 #### 🔥 Facebook: https://www.facebook.com/QuyenGiaSuJS/
 
-#### 🍻 Discord: https://discord.gg/2QY98Dqv
+#### 🍻Discord: https://discord.gg/2QY98Dqv
 
 #### ✨Phone: (+84)337846412
 
